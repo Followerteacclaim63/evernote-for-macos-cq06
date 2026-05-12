@@ -1,4 +1,4 @@
-#  
+#  Evernote for macOS professional Automation: note encryption & widgets offers the most advanced Evernote for macOS automation, with note encryption and widgets. Ideal for
 
 
 
